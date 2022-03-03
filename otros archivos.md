@@ -1,0 +1,2 @@
+En el siguiente enlace de miro se encuentran los archivos de publico objetivo, wireframe UX y UI
+https://miro.com/welcomeonboard/b1RKenVMSjQydmJYYjlOSk55YnNmbnZBS2hITlNGZjdTbWtJVlRSNG0zZ1dsanpqbFNWQ0twd29hWEFJeVlDbHwzNDU4NzY0NTE5NTUxMTg4NTQw?invite_link_id=665221818616
